@@ -4,5 +4,5 @@
 - 。◦ ESFJ ‼…💭
 - 🌟❊↝ welcome to my profile ! ♡
 - ◜♥,RPGmaker lover . . .🌻
-- ![](https://tenor.com/bEI6z.gif)
 - 𝄞
+- - ![](https://media.tenor.com/bh5CzOoFRe8AAAAC/omori-sunny.gif)
