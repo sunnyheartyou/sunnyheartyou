@@ -4,5 +4,5 @@
 - 。◦ ESFJ ‼…💭
 - 🌟❊↝ welcome to my profile ! ♡
 - ◜♥,RPGmaker lover . . .🌻
-- !(https://media.tenor.com/tWlzgbBQcpUAAAAC/mari-omori.gif)
+- ! (https://media.tenor.com/tWlzgbBQcpUAAAAC/mari-omori.gif)
 - 𝄞
